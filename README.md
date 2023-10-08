@@ -6,7 +6,7 @@
 > [!NOTE]
 > If you want to contact me then DM me directly on Instagram.
 <picture>
-    <img alt="My Profile Photo" src="https://avatars.githubusercontent.com/u/147316199?v=4">
+    <img alt="My Profile Photo" src="https://wallpapers.com/images/high/money-heist-professor-poster-xoyu3ibj86c0jlcf.webp">
 </picture>
 <!---
 Ohh! You must be wondering here to see if you could find anything new or intresting. 
