@@ -2,7 +2,7 @@
 - 👋 Hi, I’m **Atharv** creater of **@ProjectCodeCourt** 
 - 👀 I’m interested in _Cyber Tech_ in collab with _Legal framework of Democracies_
 - 🌱 I like to _learn_ from everything
-- 📫 My Instagram [**@teratogamebajanapadega**](https://instagram.com/teratogamebajanapadega)
+- 📫 My Instagram [**@letitbeghost**](https://instagram.com/letitbeghost)
 > [!NOTE]
 > If you want to contact me then DM me directly on Instagram.
 <!---
